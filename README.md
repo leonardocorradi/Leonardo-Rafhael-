@@ -5,3 +5,6 @@
 @ecola:coradi.leonardo@escola.pr.gov.br
 ツﻬஐﻬ @🅻🅴🅾🅽🅰🆁🅳🅾_🆁🅰🅵🅷🅰 ﻬஐﻬツ
 ꧁꧅๖ ⒺⓈⓉⓊⒹⒶⓃⓉⒺ ꧅꧂
+ツﻬஐﻬ 🅿🅴🆁🆂🅸🆂🆃🅴🅽🆃🅴 🅵🅾🅲🅰🅳🅾 🅳🅴🆃🅴🆁🅼🅸🅽🅰🅳🅾 ﻬஐﻬツ
+
+![](https://media.tenor.com/QXHVOYrGOqQAAAAM/disparo-risa.gif)
